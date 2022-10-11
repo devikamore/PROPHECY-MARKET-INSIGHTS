@@ -1,0 +1,2 @@
+# PROPHECY-MARKET-INSIGHTS
+SEO ,Publisher
